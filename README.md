@@ -5,5 +5,5 @@
 
 ### Bem-Vindo (a) ao meu Perfil 👋
 
-- 📫 Em que posso ajudar? contacta-me através da seguinte via: ercabsalias@gmail.com
+- 📫 Em que posso ajudar? Contacta-me através da seguinte via: ercabsalias@gmail.com
 
